@@ -1,3 +1,6 @@
-<p><span style="font-family: helvetica; font-size: 12px;">call me emrys or swordie <em>!</em><br>brazilian fool wandering the world wide web .<br>i like roblox media . mostly blocktales and phighting! atm .
+<p style="text-align: center;"><span style="font-family: arial, helvetica, sans-serif; font-size: 12px; color: rgb(0, 0, 0);">knowing everything is losing everything.<br><br>emrys / shed &middot; 18yo &middot; brazilian</span></p>
 
-<br>always open for int whenever . might be awkward at first but i don&#39;t bite , i prommy&nbsp;<em>!</em></span></p>
+<p style="text-align: center;"><span style="color: rgb(0, 0, 0);"><span style="font-size: 12px;"><span style="font-family: arial,helvetica,sans-serif;">🟢 - self-explanatory; online<br>🌙 - off-tab; w2i recommended<br></span></span><span style="font-family: arial, helvetica, sans-serif; font-size: 12px;">⛔ - not looking for interaction atm</span>
+	<br>
+	</span>
+</p>
