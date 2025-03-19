@@ -12,5 +12,5 @@
 	<br>i&#39;m off-tab most of the time. w2i if unsure or just want to tell me something.
 	<br>do NOT act freaky towards me unless we know each other.
 	<br>
-	<br>thanks for reading! ^.^</center>
+	<br>that's all. thanks for reading! ^.^</center>
 
