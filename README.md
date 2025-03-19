@@ -1,5 +1,5 @@
 <center>[ ABOUT ]
-	<br>emrys / swordie &bull; he/she/they &bull; aroace brazilian girlthing
+	<br>emrys / swordie &bull; 18yo &bull; aroace brazilian girlthing
 	<br>
 	<br>most commonly found in the safe server. might pop around in the safe esp/pt-br server sometimes.
 	<br>my interests fluctuate a lot. current is dandy&#39;s world, but i also dabble in dream game and mmmaybe regretevator?
