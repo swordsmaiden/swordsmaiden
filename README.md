@@ -5,7 +5,7 @@
 	<br>hi! you can call me emrys or swordie, maybe even delilah if you want. i don&#39;t mind.
 	<br>i&#39;m brazilian, but fluent in english and knowledgeable in a bit of spanish.
 	<br>
-	<br>i am the biggest delilah keen fan on this stupid pony website. anyone who claims otherwise is a liar and a fraud.
+	<br>i am the biggest delilah keen fan on this stupid pony website. anyone who claims otherwise is a liar and a fraud (JOKE).
 	<br>
 	<br>i&#39;m mostly found on the safe esp/pt-br server around the dandy&#39;s world area. come say hi! or don&#39;t. i&#39;m not your mom.
 	<br>heads up, i&#39;m off-tab a majority of the time. don&#39;t be afraid to send a whisper if you&#39;re unsure.
