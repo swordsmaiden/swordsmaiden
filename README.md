@@ -3,5 +3,3 @@
 	<br><em>full-time polyhusband and part-time procrastinator.</em>
 	<br>
 	<br><em>c + h always. either off-tab or hanging with my friends, w2i if needed.</em>
-	<br>
-	<br><em>consider signing my&nbsp;</em><a href="https://swordsmaiden.atabook.org/" id="" rel="noopener noreferrer" target="_blank"><em>atabook</em>.
