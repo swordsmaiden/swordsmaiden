@@ -1,1 +1,2 @@
-info wip. i like delilah keen (dandy's world) a normal amount.
+<p>18yo brazilian, any/all prns.
+	<br>i like delilah keen a normal amount.
