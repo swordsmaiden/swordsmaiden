@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://media.discordapp.net/attachments/1354898710928162987/1456802885579968562/img4.png?ex=6983382a&is=6981e6aa&hm=2ab7344a22c602e5bf93f23acffd99b902a6499db81253093f2ae46ed65280a5" alt="delly" height="250px" width="auto">
+<img src="https://media.discordapp.net/attachments/1354898710928162987/1456802886301257801/img2.png?ex=6989cfaa&is=69887e2a&hm=129ce7bfa460fbb5ee907e9274b350e7e151c2b4ef800ec82c68c76b8d312cd3" height="250px" width="auto">
 <br> any/all prns • 19yo brazilian • eng + pt-br
 <br> awesome unlabeled genderthing, beast of aromanticism.
 <br> i like delilah keen a normal amount (lie).
